@@ -105,3 +105,10 @@ Share your thoughts in the comments!
 🚀 **Click below to watch the explaination:**
 👉 [Watch on Google Drive](https://drive.google.com/file/d/1cGd12FqQ4qCKR2P43K82oGGeMqWREPbs/view?usp=sharing)
 
+
+
+🚀 **Click below to watch the my self learning journey:**
+👉 [Watch on Google Drive](https://drive.google.com/file/d/1eUEwqwJseORFZAq3D3sSm7PKvCkgLhuy/view?usp=sharing)
+
+
+
