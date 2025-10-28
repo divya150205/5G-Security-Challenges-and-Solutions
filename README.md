@@ -97,3 +97,11 @@ Share your thoughts in the comments!
 ---
 
 **#5G #CyberSecurity #Technology #Innovation #NetworkSecurity #IoT**
+
+
+
+
+
+🚀 **Click below to watch the explaination:**
+👉 [Watch on Google Drive](https://drive.google.com/file/d/1A2B3C4D5E6F7G8H9I/view)
+
